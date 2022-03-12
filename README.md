@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello guys, welcome to my channel 😄
 
 <!--
 **vicecitydeluxe/vicecitydeluxe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
